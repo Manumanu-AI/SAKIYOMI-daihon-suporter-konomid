@@ -1,1 +1,0 @@
-# Manumanu-AI-SAKIYOMI-daihon-suporter-konomid
